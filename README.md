@@ -3,7 +3,7 @@
 
    <img src="https://tenor.com/pt-BR/view/kid-goku-peace-dragon-ball-goku-dragonball-gif-14419127274398548066.gif" width="250" height="200" />
 
-Meu nome é Jonathan Duarte de Azeveo e sou profisional com carreira desenvolvida na área de Tecnologia da Informação. Experiência de mais de 5 anos na área de Service Desk, Suporte e Infraestrutura, com atuação personalizada em empresas de diversos segmentos, forte capacidade de gestão em múltiplas frentes e diferentes perfis de entrega. Visão analítica do contexto, recomendando ações e soluções de acordo com o cenário, priorizando melhoria contínua sempre, facilidade de adaptação às necessidades do negócio, forte capacidade motivacional para liderar uma equipe, comunicação e Gerenciamento de Serviços de TI são as habilidades em ênfase. 
+Meu nome é Jonathan Duarte de Azevedo e sou profisional com carreira desenvolvida na área de Tecnologia da Informação. Experiência de mais de 5 anos na área de Service Desk, Suporte e Infraestrutura, com atuação personalizada em empresas de diversos segmentos, forte capacidade de gestão em múltiplas frentes e diferentes perfis de entrega. Visão analítica do contexto, recomendando ações e soluções de acordo com o cenário, priorizando melhoria contínua sempre, facilidade de adaptação às necessidades do negócio, forte capacidade motivacional para liderar uma equipe, comunicação e Gerenciamento de Serviços de TI são as habilidades em ênfase. 
 
 ## Contatos:
 
